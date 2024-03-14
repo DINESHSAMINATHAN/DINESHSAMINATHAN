@@ -1,4 +1,4 @@
-![The Future Will Be Confusing](https://quotefancy.com/media/wallpaper/3840x2160/315275-Jared-Leto-Quote-Try-and-fail-but-never-fail-to-try.jpg)
+![Aim high became busy nobody can catch you](https://www.google.com/search?client=ms-android-oppo-rvo3&sca_esv=3cd05f168dae64b7&sxsrf=ACQVn08dKcaSJ8ldeU92KR84pUqnowKjHA:1710422779649&q=aim+high+become+busy+nobody+can+catch+you+images&uds=AMwkrPsxSHj2U9oQimstH2LxC3kNcI8SI4PQqjMT1Qc0m2ChuMvPfTM-FCuCSVpdodJwn9lRshA1YP388wWGff7xJs79JyRlhYEGX27bFSYgVsEiMLudRv2uyyvRW56PG_Z1NlQahgSd9PUGflrVhpaGovhyjsTcJXR2UIWHS7WVaV3q4pZEnpW90N4Supig0MTiElvzMycM2_fYv260grnhUFqimj98TJwR7BLqYJn4YBEkW_LN2uqFR2vhylztRN_2FDwsbkWIW6Pk8tELMzIy2PD3X8FTePhwluOksgUoXlZmwuVTk9--oV5a51pkkJnBTHW0nVd2BCnjbcr4hbcAXu3pPfHJDw&udm=2&prmd=ivsnbmtz&sa=X&ved=2ahUKEwiW98ix7fOEAxUGbmwGHcbOBPUQtKgLegQIExAB&biw=360&bih=708&dpr=3#vhid=ACeEEswLzc6E8M&vssid=mosaic)
 
 
 
