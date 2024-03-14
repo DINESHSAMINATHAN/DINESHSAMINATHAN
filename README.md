@@ -1,4 +1,4 @@
-![](https://quotefancy.com/media/wallpaper/3840x2160/18846-Anonymous-Quote-Work-hard-in-silence-let-your-success-be-your.jpg)
+![work hard in silence let your success be your](https://quotefancy.com/media/wallpaper/3840x2160/18846-Anonymous-Quote-Work-hard-in-silence-let-your-success-be-your.jpg)
 
 
 
